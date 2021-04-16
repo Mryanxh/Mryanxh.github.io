@@ -3,7 +3,8 @@
 
 - 手机：15162077685
 - Email：mr.yanxh@foxmail.com
-- QQ/微信号：qq:932572290
+
+![微信](./assets/sy6ta2scwwm_wx_jpg)
 
 # 个人信息
 

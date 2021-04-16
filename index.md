@@ -4,8 +4,6 @@
 - 手机：15162077685
 - Email：mr.yanxh@foxmail.com
 
-![微信](./assets/sy6ta2scwwm_wx_jpg)
-
 # 个人信息
 
 - 燕晓贺/男/1993
